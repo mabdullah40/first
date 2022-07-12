@@ -1,0 +1,1 @@
+ja kaka chuti ke ta practicce ker'
